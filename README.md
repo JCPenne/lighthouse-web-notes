@@ -1,1 +1,2 @@
-# [Jack]'s Notes
+# Jack's Notes
+
